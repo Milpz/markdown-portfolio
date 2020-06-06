@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+_basic skills in assisting customers with problems around the questions with their __phones__ so can make their phone life easier.
